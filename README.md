@@ -1,2 +1,1 @@
-# Seres_Imaginarios_Imaginary_Beings
-Seres_Imaginários_Imaginary_Beings de jJomaro Cabrela
+# DSeres_Imaginários_Imaginary_Beings em formato Livro e em formato PDF por Jomaro Cabrela
