@@ -1,2 +1,2 @@
-# Seres_Imagina-rios_Imaginary_Beings
+# Seres_Imaginarios_Imaginary_Beings
 Seres_Imaginários_Imaginary_Beings de jJomaro Cabrela
